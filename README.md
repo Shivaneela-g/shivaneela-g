@@ -1,5 +1,5 @@
 
-# Hi 👋 I'm Gaddameedi Shivaneela
+#  I'm Gaddameedi Shivaneela
 
 ### M.Sc. Computer Science Graduate | AI & Machine Learning Enthusiast
 
